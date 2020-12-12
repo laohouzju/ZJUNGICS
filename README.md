@@ -1,3 +1,7 @@
+[上传个人汇报PPT](http://xzc.cn/kyT0GViO0E)
+
+[下载别人的slides](https://pan.baidu.com/s/1tKvzqQpuE9TztrE7c6xC3g)
+
 |      | Date       | Speaker | Title    |
 | ---- | ---------- | ------- | -------- |
 | 1    | 2020.11.29 | all     | 月度汇报 |
